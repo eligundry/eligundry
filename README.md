@@ -9,7 +9,7 @@
 
 ### Working With Me
 
-- 🌞 My days start at 10am eastern and end at 6pm-ish.
+- 🌞 My days start at 10am eastern and end at 6pm-ish. I get in the zone in the afternoon/evening.
 - 👋 I'm completely fine with being distracted at any time. I'm really good at context switching and it actually gives me energy.
 - 🌎 Tell me the context on why something should be done. I will "yes, and" whenever I can.
 - 💼 Tell me the business case about what I'm working on, either now or in the near future. I will kick around and meditate on
